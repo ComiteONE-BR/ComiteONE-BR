@@ -12,7 +12,7 @@
 
 ## 📡 Contatos
 - 💌 email: comiteonebr@gmail.com
-- 🎬 youtube: @comite_one_br
+- 🎬 youtube: [youtube/@comite_one_br](https://www.youtube.com/@comite_one_br)
 
 
 <!---
